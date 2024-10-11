@@ -1,7 +1,7 @@
 
            
            
-           We are about #Winning💯
+           We are all about #Winning💯
 
            Aren't we?
 
