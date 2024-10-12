@@ -6,4 +6,4 @@
 
            Aren't we?
 
-           Stay tuned for me updates!😉
+           Stay tuned for more updates!😉
